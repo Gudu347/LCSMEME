@@ -1,0 +1,2 @@
+# LCSMEME
+Its A MEMECOIN
